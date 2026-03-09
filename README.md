@@ -18,5 +18,3 @@ With over 4 years of experience in the Canadian workforce—ranging from technic
 
 ### 📫 Let's Connect!
 * **LinkedIn:** https://www.linkedin.com/in/gurkiratsingh6/
-* **Location:** Edmonton, AB
-* **Email:** gurkiratsingh.can@gmail.com
